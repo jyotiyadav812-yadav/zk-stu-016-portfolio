@@ -20,3 +20,6 @@ Hiii
 **I learn *ai tools* with a lot of courage**
 #  website maker
 I have made a website related to my official work 
+<img width="1536" height="1024" alt="1000054250" src="https://github.com/user-attachments/assets/b260e3ad-388b-415d-8ed2-a1d3b82bd359" />
+
+_I love traveling and make memories _
